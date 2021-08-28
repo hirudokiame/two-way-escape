@@ -1,4 +1,7 @@
 # two-way-escape
+【获取游戏】
+网页：https://hirudokiame.github.io/two-way-escape/
+PC： https://site-3663036-5619-140.mystrikingly.com/blog/two-way-escape
 
 【游戏时长】
 
